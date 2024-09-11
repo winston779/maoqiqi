@@ -1,6 +1,6 @@
 # 猫七七机场官网地址
 
-最新地址：[cat77.org](https://redsleep.top/#/register?code=4ZoKbSNP)
+最新地址：[cat77.org](https://qianmi7.top/#/register?code=4ZoKbSNP)
 
 ## 猫七七介绍
 
