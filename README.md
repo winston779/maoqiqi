@@ -1,6 +1,6 @@
 # 猫七七机场官网地址
 
-最新地址：[cat77.org](https://leaflofi.top/#/register?code=4ZoKbSNP)
+最新地址：[cat77.org](https://bluesky77.top/#/register?code=4ZoKbSNP)
 
 ## 猫七七介绍
 
